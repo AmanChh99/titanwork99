@@ -1,4 +1,0 @@
-Aman
-Pragya
-Aagya
-Praan
